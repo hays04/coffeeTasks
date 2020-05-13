@@ -6,5 +6,7 @@ Please STAR it, this will alert me to the fact that you have signed up
 and are able to access the resources that will be avaible on this
 platform.
 
-If you are here because of a question from a Teams Quiz the answer is:  = != ==
+I have no idea what the question is but the answer is:  = != ==
 
+
+>KH
